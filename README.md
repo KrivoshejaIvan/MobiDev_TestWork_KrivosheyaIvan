@@ -1,1 +1,0 @@
-# MobiDev_TestWork_KrivosheyaIvanaaa
